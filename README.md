@@ -13,4 +13,3 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning more specific topics about my field and trying to deepen my knowledge in filmografy and literature aswell
 - 📫 How to reach me: riccardo2.dolci@mail.polimi.it
 
-dfahyfaefyuea sexy
